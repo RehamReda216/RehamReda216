@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **reham.reda.tantawy@gmail.com**
 
-- 📄 Check out my CV [http://surl.li/rggzm](https://drive.google.com/file/d/18-TDSKMeieoygVnQvXUl0N-R_1AvyOcx/view?usp=drive_link)
+- 📄 Check out my CV [http://surl.li/rggzm](https://drive.google.com/file/d/1u_WJYcZId-jKYerN_ygZJjPRfBrxr4Gr/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
